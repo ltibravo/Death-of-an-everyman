@@ -2,7 +2,7 @@
 ----------------------------------------------------------------------------------------------
 The death of Li Wenliang has shaken China like an earthquake. He was a young doctor who was reprimanded by Chinese police for alerting colleagues to a new virus that has now killed more than 1,300 people, Dr Li among them (see Obituary). There was nation- wide soul-searching when the ophthalmologist told Chinese media, days before his death on February 6th in Wuhan, Hubei province, that silencing truth-tellers can make a country sick. “I think there should be more than one voice in a healthy society,” he said. </br>	
 </br>
-李文亮医生之死如一场地震般震动了中国。他是一位年轻的医生，因为提醒同事注意一种新型病毒而受到中国警方训诫，这种病毒现在已经杀死1,300多人，李医生也在其中（参见讣告）。在2月6日于湖北武汉去世的几天前，全国上下兴起一片反思，当这位眼科医生告诉中国媒体，让讲真话的人闭嘴会使一个国家生病。“我认为一个健康的社会不该只有一种声音，”他说道。</br>	
+**李文亮医生之死如一场地震般震动了中国。他是一位年轻的医生，因为提醒同事注意一种新型病毒而受到中国警方训诫，这种病毒现在已经杀死1,300多人，李医生也在其中（参见讣告）。在2月6日于湖北武汉去世的几天前，全国上下兴起一片反思，当这位眼科医生告诉中国媒体，让讲真话的人闭嘴会使一个国家生病。“我认为一个健康的社会不该只有一种声音，”他说道。**</br>	
 </br>
 There is special outrage that this everyman-physician died with the charge of rumour-mongering still on his police file. “What kind of society have we created?” asked Chinese netizens, with a mixture of anger and shame. In the hours after Dr Li’s death nearly 2m of them shared or viewed a hashtag meaning “I want freedom of speech”, before it was deleted by censors. Open letters and petitions have called on the Communist Party’s leaders to hon- our the constitution’s neglected guarantee of free expression, arguing that truth-telling saves lives. “We should learn from Li Wenliang’s death,” said an academic in Wuhan behind one petition.</br>	
 </br>
